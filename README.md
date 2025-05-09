@@ -1,7 +1,7 @@
 - Olá sou o Isaac tenho 15 anos.
 - Gosto de dormir.
 - E trabalho também.
-- 
+- ☯️
 - 
 -
 - 
